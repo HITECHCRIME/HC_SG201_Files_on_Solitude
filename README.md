@@ -20,7 +20,23 @@ Description.
 ## Lyrics
 
 ```
+I got good files on solitude uh
 
+Came back aligned just to make sure
+
+What is right not often flows 
+
+Made it all black, all caps
+
+made the vows 
+
+to the tech
+
+crawled out from misery, 
+
+hold up
+
+gonna doubleback and pay the fee
 
 ```
 
